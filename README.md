@@ -1,0 +1,1 @@
+# Zadanie300426R-AMiD
